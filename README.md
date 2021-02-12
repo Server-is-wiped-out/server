@@ -6,8 +6,11 @@ Bu depolama alanı, bizlerin ilgilendiği her şeyi kapsar. Birlikte bir şeyler
 
 [Doğrulama](https://github.com/Server-is-wiped-out/server/wiki/Ev) hakkında bilgi almak için bu kanala gitmeniz şiddet ile tavsiye edilir.
 
+# 🍰
 [Davet Linki](https://discord.gg/uuUJRg7mTf)
 
+# 🔗
 [Organizasyon](https://github.com/Server-is-wiped-out)
 
+# 📬 
 [Reddit](https://www.reddit.com/r/turkspace/)
