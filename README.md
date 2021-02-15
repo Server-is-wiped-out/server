@@ -1,3 +1,5 @@
+![wipedOut](https://i.imgur.com/mcabOjx.jpg)
+
 # Server is wiped out
 
 <img width="25%" align="right" src="https://i.imgur.com/OvrFl3w.png">
